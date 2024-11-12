@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ilikemusi
-- 👀 I’m interested in ... Gaming, eating
+- 👀 I’m interested in ... Gaming, Sleeping
 - 🌱 I’m currently learning ... Engilish
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
